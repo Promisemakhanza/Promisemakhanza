@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Promisemakhanza
+- 👀 I’m interested in fitness
+- 🌱 I’m currently learning Masters in Education
+- 💞️ I’m looking to collaborate on this course with like minded individuals.
+- 📫 You can reach me via email promisemakhanza@gmail.com or on Whats'app at 0724510574
